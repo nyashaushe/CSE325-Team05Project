@@ -1,1 +1,1 @@
-Participant - walterstamm Stamm
+Participants - Wlterstamm Stamm
